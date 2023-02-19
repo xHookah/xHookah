@@ -47,6 +47,6 @@ I live in UK.
 Thinking about my contacts?
 Discord Server: Don't have one.
 YouTube Channel: Don't have one.
-My Socials: Telegram: @Zam Zam
+My Socials: Discord: !  Hookah#6173
 Please hit on enter when you have completed reading about me: 
 ```
